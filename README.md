@@ -15,4 +15,4 @@ Proof these aint old: they never stopped mining until a hour ago after they figu
 
 Theres tons more proofs of miners etc to see more here is their chats:
 https://cdn.discordapp.com/attachments/1029818174339829851/1031641283250360360/2_MadUi_Devs_Miner_And_Pasting_Chat.html
-https://cdn.discordapp.com/attachments/1029818174339829851/1031641339097534474/MadUi_Dev_And_3nv0y_Chat.html
+

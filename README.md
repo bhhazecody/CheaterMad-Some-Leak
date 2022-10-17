@@ -14,8 +14,6 @@ Proof these aint old: they never stopped mining until a hour ago after they figu
 ![image](https://user-images.githubusercontent.com/72467713/196258248-6c0f24d5-e795-4a67-b4b2-7725aca78d7d.png)
 3nv0y enjoying his 5k Miner clients
 ![image](https://user-images.githubusercontent.com/72467713/196258378-dda7e741-bc27-448c-9701-c7349f756d29.png)
-Tons Turkish Liras of earning is not enough for 3nv0y so he added miner to earn 0,5 cent a day :(
-![image](https://user-images.githubusercontent.com/72467713/196258851-8b59fd17-2a38-4188-b4c0-9db1f1232c41.png)
 
 Theres tons more proofs of miners etc to see more here is their chats:
 https://cdn.discordapp.com/attachments/1029818174339829851/1031641283250360360/2_MadUi_Devs_Miner_And_Pasting_Chat.html

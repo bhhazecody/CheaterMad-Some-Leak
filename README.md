@@ -1,8 +1,9 @@
 # CheaterMad Source Leaks And Miner SS
 # IF YOU AUTOMATICLY GOT REDIRECTED HERE ITS BECAUSE U USED CHEATERMADS LOADER THEY CAN CONTROL YOUR EVERY MOVE
+# UNINSTALL MADUI ITS SO EASY TO GET IN THEIR ADMIN WITH SQL INJECTION THATS HOW YOU ARE HERE THEY CAN CONTROL YOU ANYONE CAN
+
 So basicly cheatermad cheater.ninjas etc owner 3nvoy can do anything for money even add miners to his products in this leak u can see how pasted his sources is + that he can do anything for money including adding the miner
 
-# UNINSTALL MADUI ITS SO EASY TO GET IN THEIR ADMIN WITH SQL INJECTION THATS HOW YOU ARE HERE THEY CAN CONTROL YOU ANYONE CAN
 
 First Of all i know i cant make a big effect on them, They will Deny It Till the end. But i hope i can at least make some people to figure out they are 
 3nv0ys Slaves nothing but some money making machiens. 

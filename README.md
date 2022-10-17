@@ -8,6 +8,8 @@ So basicly cheatermad cheater.ninjas etc owner 3nvoy can do anything for money e
 First Of all i know i cant make a big effect on them, They will Deny It Till the end. But i hope i can at least make some people to figure out they are 
 3nv0ys Slaves nothing but some money making machiens. 
 
+also a little proof behind these that 3nv0y is a cp addicted 30 years old man here is a little proof these has cp in it
+![image](https://user-images.githubusercontent.com/72467713/196263085-c2c0eed4-a4e3-41ed-8973-8706e848349f.png)
 
 Chat Between Cheater Mad Cheat Devs (3nvoy Knows About These He Ordered It)
 ![image](https://user-images.githubusercontent.com/72467713/196257472-ab9796d6-9824-41fd-b9bd-1bdf1b097fdb.png)

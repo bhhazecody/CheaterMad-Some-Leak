@@ -12,8 +12,6 @@ using public miner unam silent miner %200 fully undetected
 ![image](https://user-images.githubusercontent.com/72467713/196257960-2ce3b1ef-75e0-4ecc-bf2c-adb4083b449f.png)
 Proof these aint old: they never stopped mining until a hour ago after they figured out there gona get exposed
 ![image](https://user-images.githubusercontent.com/72467713/196258248-6c0f24d5-e795-4a67-b4b2-7725aca78d7d.png)
-3nv0y enjoying his 5k Miner clients
-![image](https://user-images.githubusercontent.com/72467713/196258378-dda7e741-bc27-448c-9701-c7349f756d29.png)
 
 Theres tons more proofs of miners etc to see more here is their chats:
 https://cdn.discordapp.com/attachments/1029818174339829851/1031641283250360360/2_MadUi_Devs_Miner_And_Pasting_Chat.html

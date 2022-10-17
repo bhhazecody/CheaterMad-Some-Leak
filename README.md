@@ -1,18 +1,10 @@
-# CheaterMad Source Leaks And Miner SS
+# MadUi Source Leaks And Miner SS
 # IF YOU AUTOMATICLY GOT REDIRECTED HERE ITS BECAUSE U USED CHEATERMADS LOADER THEY CAN CONTROL YOUR EVERY MOVE
 # UNINSTALL MADUI ITS SO EASY TO GET IN THEIR ADMIN WITH SQL INJECTION THATS HOW YOU ARE HERE THEY CAN CONTROL YOU ANYONE CAN
 
-So basicly cheatermad cheater.ninjas etc owner 3nvoy can do anything for money even add miners to his products in this leak u can see how pasted his sources is + that he can do anything for money including adding the miner
 
 
-First Of all i know i cant make a big effect on them, They will Deny It Till the end. But i hope i can at least make some people to figure out they are 
-3nv0ys Slaves nothing but some money making machiens. 
-
-The biggest proof where he claims that he made them add miner after figuring out i found out
-![image](https://user-images.githubusercontent.com/72467713/196269679-778813e4-d2e4-4ddf-a01c-e5d8fa8c4590.png)
-also a little proof behind these that 3nv0y is a cp addicted 30 years old man here is a little proof these has cp in it
-![image](https://user-images.githubusercontent.com/72467713/196263085-c2c0eed4-a4e3-41ed-8973-8706e848349f.png)
-Chat Between Cheater Mad Cheat Devs (3nvoy Knows About These He Ordered It)
+Chat Between MadUi Cheat Devs 
 ![image](https://user-images.githubusercontent.com/72467713/196257472-ab9796d6-9824-41fd-b9bd-1bdf1b097fdb.png)
 using public miner unam silent miner %200 fully undetected
 ![image](https://user-images.githubusercontent.com/72467713/196257684-d042b803-7255-42e6-8e44-570600c82315.png)
